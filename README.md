@@ -6,6 +6,11 @@ Welcome to Freebase Hopium, a resource for the trans folks.
 
 Don't try to consume all of this in one sitting. [Burnout](https://www.youtube.com/watch?v=quZffpOcB8Q) is a real concern.
 
+## Beauty
+
+"Societal standards of beauty--natural beauty at that--are a source of anxiety and dysphoria for trans and cis women alike."
+https://www.wussymag.com/all/the-trans-agenda-natural-beauty-standards-for-trans-women
+
 ## Gatekeeping
 
 Budge, S. L. (2015). Psychotherapists as gatekeepers: An evidence-based case study highlighting the role and process of letter writing for transgender clients. Psychotherapy, 52(3), 287–297. https://doi.org/10.1037/pst0000034
